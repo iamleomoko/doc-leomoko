@@ -1,3 +1,3 @@
 # Leo Moko Doc
 
-I keep track of my learnings, processes, and guidelines.
+I record my lessons learned, my processes, and my rules.
