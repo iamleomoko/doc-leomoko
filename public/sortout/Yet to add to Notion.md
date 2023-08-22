@@ -110,6 +110,24 @@ that have a significant and positive impact on society.
 Let's connect and look for ways to work together on worthwhile
 projects. I'm excited to work with you to make a difference!
 
+Linkedin profile v2
+
+Hello and thank you for looking at my profile! I'm the founder of Firsteleven Inc., which is currently developing an unique app called Heavy.
+
+As a leader, my goal is to create an environment in which people can appreciate their individuality while working together to achieve goals that go beyond monetary compensation.
+As a solutions architect, I concentrate on basics while embracing new technologies and approaches. I feel that concentrating on little details allows a team to consider enhancements rather than minor tweaks, and I am comfortable talking with both technical and non-technical stakeholders.   
+
+In addition to my responsibilities at Firsteleven Inc., I am excited to contribute to the open-source communities. In my spare time, you can find me contributing to the websites https://www.vision.firsteleven.co.za and https://www.idea.firsteleven.co.za.
+
+In my spare time, I love a range of artistic pursuits. I find solace in books, exploring new worlds through literature. While painting on canvases, I let my creative soul run free, bringing my thoughts and emotions to life. In addition, I use a camera to capture fleeting moments of beauty in order to freeze time and preserve memories.
+
+
+In addition, I am a social entrepreneur. I am optimistic that technology will help us solve some of the world's most pressing problems. With my abilities and knowledge, I am committed to creating products that have a significant and positive impact on society.
+
+Let's connect and look for ways to work together on important subjects. I'm excited to work with you to make a difference!
+
+
+
 Short description after FirstEleven
 
 - As the mind behind @firsteleven.org, I am a
