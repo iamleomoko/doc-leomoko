@@ -7,3 +7,7 @@
 - Stand guard at the door of your mind. **- Leo Moko**
 - Make decisions to expand your network because it is your net worth. Yes, you can cut your own hair, but coming to the barbershop allows you to stay up to speed on your community and expand your network. **- Leo Moko**
 - Those in pursuit of wisdom find themselves in a hospital for their wounded souls, acting in a preventative manner. **- Leo Moko**
+- What you don't use you lose. **- Leo Moko**
+- Things take time; don't rush the process. **- Leo Moko**
+- Commit to a vision and mission; don't cut corners. Have values and principles, and as a leader, read and study. **- Leo Moko**
+- If it's hard, do it hard; if it's easy, do it easy; don't do what is hard easy. **- Leo Moko**

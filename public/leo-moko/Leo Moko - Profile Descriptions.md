@@ -1,3 +1,18 @@
+**Leo Moko Ventures**
+
+1. Consulting
+2. Content Creation
+   - Blog
+   - Podcasts
+3. Digital Products
+4. Handmade Crafts
+   - Painting
+   - Photography
+5. Online Tutoring
+   - Life Coaching
+6. Online Communities
+7. Publishing E-Books
+
 ## Leo Moko keywords?
 
 Visionary, Philosophy, Social Entrepreneur, Software Engineer, Reformer, Change-maker, Human, Christianity, Animal and nature lover, Photographer, Music Lover
